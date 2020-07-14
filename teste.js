@@ -1,0 +1,8 @@
+asasiajsjaiosjaiosj
+asokaoska
+aosjaosk
+akjsiajspajks
+aoksoajs
+aoskaosk
+aoajsoa
+aoskao´ks
